@@ -99,3 +99,4 @@ M6螺母也用于辅助搓热端铝块
 【淘宝】https://m.tb.cn/h.5ImjHXCLdrumGd5?tk=pSKjW8uib15 
 ![](/res/jupian.jpg "")
 
+### 若有任何问题可加Q群：826045677  @John
